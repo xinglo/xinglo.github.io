@@ -3,7 +3,7 @@
 
 Greetings! This is Xingru"Iris"Long, going by she/her👾. 
 
-I am currently majoring **MS in Financial Engineering** at the **University of Southern California（USC）**🗡. 
+(Gap 2025 - 2026)I am currently majoring **MS in Financial Engineering** at the **University of Southern California（USC）**🗡. 
 My work sits at the broad area of **AI** and **Financial Analyst** Industry. 
 <p></p>
 *Career = mathematical and computational methods to solve complex problems in finance.
